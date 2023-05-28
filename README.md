@@ -14,3 +14,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+# ⚡ Fun fact: 
+- I have Samsung Note8 (greatlte), J2 Pro (j2y18lte), Lenovo A7000 (aio_row)
+
+# 📫 How to reach me:
+- Discord - lapchong999#9944
+- [Telegram](https://t.me/lapchong888)
